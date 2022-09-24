@@ -1,4 +1,11 @@
 # searchBarToList---Murat-Saglam
-Medium Blog - searchBarToList
+✍️Medium Blog Content
 
-Murat Sağlam - Medium Blog
+My Social Media Accounts :
+
+Linkedin : www.linkedin.com/in/muratsaaglam/
+
+Instagram : https://www.instagram.com/muratsaaglam/ 
+
+Medium: https://medium.com/@murat_saglam
+
